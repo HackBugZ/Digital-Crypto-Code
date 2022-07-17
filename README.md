@@ -1,2 +1,2 @@
 # Digital-Crypto-Code
-Digital Crypto Code | Digital goods | Blockchain Office | BOPGP1-
+Digital Crypto Code | Digital goods | Blockchain Office | BOPGP1
